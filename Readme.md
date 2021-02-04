@@ -1,1 +1,0 @@
-https://nguyenduc.space/covid
